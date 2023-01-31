@@ -1,11 +1,16 @@
-
-
-
-
-
-
-
-
+GLOW4'
+BEGIN
+AUTOMATE
+Automates.yml:On-starts :BEGIN :Runs'' :
+'' ' :
+:''' ':'.'Docx''
+Usr/bin/Bash/ ENV :''
+'# RUN::\AUTOMATE::\ALL::\scripts::\Script::\START::\'Run'' :
+'AUTOMATES AUTOMATE AUTOMATE *logs:All::.#Cache:.caches*logS :src/code.dir'@sun.java.org/WIZARD/install/dl/installer/Setup*\**.exec** :
+GLOW4 ':'' :
+BEGINS..., :starts :
+starts-on :repositories/dispatch :thimball/laddel/WHISK@Contributing.md/contributing.md/Read.md/read.md :
+itHub launch code
 <!DOCTYPE html>
 <html lang="en" data-color-mode="auto" data-light-theme="light" data-dark-theme="dark" data-a11y-animated-images="system">
   <head>
