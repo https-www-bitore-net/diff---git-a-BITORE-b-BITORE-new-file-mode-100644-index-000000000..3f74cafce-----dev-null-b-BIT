@@ -1,5 +1,311 @@
 # GitHub public roadmap
+Skip to content
+Today
+Credit
+Money
+Explore
+My Recommendations
+1
+Auto
+Home
+Taxes
+File Now
+Profile & Settings
+Today
+Personalize
+558
+TransUnion
+Needs Work
+Checked daily
+524
+Equifax
+Needs Work
+Checked daily
 
+Scores calculated using VantageScore 3.0
+
+
+Credit Karma Money™
+Spend account
+$0.00
+
+
+Car value (est.)
+$0
+Take action
+
+Auto insurance
+
+Home purchase
+
+Car buying
+
+Credit cards
+
+Auto refinance
+
+Personal loans
+
+My offers
+
+Home refinance
+
+Karma Guarantee
+
+Home insurance
+
+Taxes & Income
+
+Life insurance
+Multi-vehicle insurance
+Legal Disclosure
+
+Insure your F-TYPE and Aventador for as low as*
+$90/mo
+Have more than one vehicle? Find out if bundling car insurance policies in TX can save you money.
+
+
+See options
+Are you ready to buy a home?
+Don’t let rising rate jitters slow your buying goals. Here are the lowest estimated rates we found based on your zip code and credit scores.*See more
+Don’t let rising rate jitters slow your buying goals. Here are the lowest estimated rates we found based on your zip code and credit scores.*
+Advertiser Disclosure
+Legal Disclosure
+
+
+
+30-year Conventional
+7.125% rate - 7.131% APR
+Strong Home Mortgage #1675638
+
+
+15-year Conventional
+4.875% rate - 4.884% APR
+Strong Home Mortgage #1675638
+
+
+20-year Conventional
+6.625% rate - 6.632% APR
+Strong Home Mortgage #1675638
+See how car insurance rates compare in Texas
+Are car insurance rates for your Jaguar F-TYPE less than what you pay now?
+Are car insurance rates for your Jaguar F-TYPE less than what you pay now?
+Legal Disclosure
+
+
+
+See if you can find the right insurance rates for your Jaguar
+See Options
+
+
+Minimum coverage as low as
+$36/mo*
+
+
+Standard coverage as low as
+$103/mo*
+
+
+Deluxe coverage as low as
+$113/mo*
+IRS is open! Get early access to your refund.
+Legal Disclosure
+
+
+File with TurboTax® and access your max refund¹ up to 5 days early² with Credit Karma Money.™³
+
+
+Get started
+Life insurance for financial protection
+Advertiser Disclosure
+Legal Disclosure
+
+Members like you pay on average*
+$16/mo
+When it comes to life insurance, it can be more expensive the longer you wait. At 28 now is a great time to take advantage of available rates now in Texas.
+
+
+See options
+Protect your valuables for as low as $5/mo
+
+
+Renters insurance can help you repair or replace your things if damage or theft happens.
+
+
+See my options
+Still looking for a credit card?
+
+
+We’ve done the legwork and have your personalized credit card recommendations.
+
+
+See card picks
+
+
+Activate your new debit card
+Check your mail, your debit card may have already arrived. Activate it now.
+Accounts
+From January 28, 2023 TransUnion ReportSee all
+From January 28, 2023 TransUnion Report
+
+$15,242 Total open balances
+
+$0 Credit cards
+
+$15,242 Collections
+
+$0 Student loans
+
+$0 Other loans
+
+$0 Auto loans
+
+$0 Home loans
+Hard inquiry tip
+Too many hard inquiries can hurt your credit.See all
+Too many hard inquiries can hurt your credit.
+
+
+What you can do
+Review your credit reports — if you didn't authorize a creditor or lender to pull your credit, you can file a dispute.
+
+
+
+Hard inquiries
+8
+Your data breach
+Legal Disclosure
+
+
+We found you in 2 data breaches.* Check your activity to make sure your info wasn’t compromised.
+
+
+Check activity
+Your score since joining
+Legal Disclosure
+
+Your score has increased by
+54 points*
+Way to go! Check in on your credit factors to learn how you can continue improving your score.
+
+
+View factors
+
+
+Disputing a collection from Oak Lawn Heights Apts could boost your score
+Disputing a collection never hurts your score.
+
+
+Add funds to your account
+Deposit money into your Credit Karma Money™ Spend account* so you’ll be ready to go once your card arrives.
+*Banking services provided by MVB Bank, Inc., Member FDIC. Maximum balance and transfer limits apply.
+
+Pre-approval letters: What’s in it for you?
+
+
+A pre-approval letter can go a long way in making the home buying process smoother. Read this post to find out how!
+
+
+Find out more
+Finish checking your est. 2022 tax refund
+
+Legal Disclosure
+
+Estimate your 2022 tax refund today and start planning ahead.
+
+
+Estimate my refund
+Find out how your card usage compares to your peers
+Legal Disclosure
+
+
+Your credit card usage is 32% less than the average of your age group*—nice work. Check in now to learn why and how your credit utilization affects your score!
+
+
+Go to credit utilization
+Can you afford your dream home?
+
+
+See if you can make your home dreams a reality. Calculate how much home you could afford.
+Calculate buying power
+
+
+Home price:
+$---.--
+
+
+Est. interest rate:
+---.--%
+
+
+Est. monthly payment:
+$---.--
+What you can do on Credit Karma
+
+Auto
+
+Home
+
+Credit cards
+
+Personal loans
+
+COVID Relief
+
+Taxes & Income
+Suggested for your credit
+Suggested cards
+We suggest offers based on your credit, Approval Odds, and money we make from our partners.Advertiser Disclosure
+Capital One Platinum Secured Credit Card
+offer options for Capital One Platinum Secured Credit Card
+Capital One Platinum Secured Credit Card
+1887 Reviews
+
+Your chance of approval is good
+
+MIN. DEPOSIT
+$49, $99 or $200
+Refundable
+REGULAR PURCHASE APR
+29.74% (Variable)
+ANNUAL FEE
+$0
+Continue
+See details, rates, and fees
+FacebookInstagramTwitterYouTubeTik TokPinterestScan the QR CodeScan the QR code to
+download the app
+COMPANY INFO
+About Credit Karma
+Careers
+In The News
+Engineering Blog
+Product Blog
+HELP
+Help Center
+How Credit Karma Works?
+Security Practices
+Editorial Guidelines
+LEGAL
+Privacy Policy
+CA Privacy Policy
+Terms of Service
+Data Preferences
+NOTABLE LINKS
+7 ways to find Cheap Car Insurance
+7 Auto Loans for Bad Credit
+Best High - Limit Credit Cards
+How to find a No Fee ATM Machine?
+4 Best Quick Loans for Emergency Cash
+Should I Refinance my Mortgage?
+How to get a Mortgage Preapproval?
+digicert EV Secure. Click to Verify
+© 2007–2023 Credit Karma, LLC. Credit Karma® is a registered trademark of Credit Karma, LLC. All Rights Reserved. Product name, logo, brands, and other trademarks featured or referred to within Credit Karma are the property of their respective trademark holders. This site may be compensated through third party advertisers.
+Credit Karma Mortgage, Inc. NMLS ID# 1588622 | Licenses | NMLS Consumer Access
+Credit Karma Offers, Inc. NMLS ID# 1628077 | Licenses | NMLS Consumer Access
+California loans arranged pursuant to Dep't of Business Oversight Finance Lenders License #60DBO-78868.
+Auto, homeowners, and renters insurance services offered through Karma Insurance Services, LLC (CA resident license #0172748).
+Only mortgage activity by Credit Karma Mortgage, Inc., dba Credit Karma is licensed by the State of New York. Credit Karma, LLC. and Credit Karma Offers, Inc. are not registered by the NYS Department of Financial Services.iPhone is a trademark of Apple Inc., registered in the U.S. and other countries. App Store is a service mark of Apple Inc.Android is a trademark of Google Inc.The Equifax logo is a registered trademark owned by Equifax in the United States and other countries.
+Credit Karma is committed to ensuring digital accessibility for people with disabilities. We are continually improving the user experience for everyone, and applying the relevant accessibility guidelines.If you have specific questions about the accessibility of this site, or need assistance with using this site, contact us. Please call Member Support at 833-675-0553 or email legal@creditkarma.com
 :sparkle: View the [official GitHub public product roadmap](https://github.com/orgs/github/projects/4247)[^1]
 
 Our product roadmap is where you can learn about what features we're working on, what stage they're in, and when we expect to bring them to you. Have any questions or comments about items on the roadmap? Share your feedback via [GitHub public feedback discussions](https://github.com/github/feedback/discussions). 
@@ -11,44 +317,27 @@ The roadmap repository is for communicating GitHub’s roadmap. Existing issues 
 ## Guide to the roadmap
 
 Every item on the roadmap is an issue, with a label that indicates each of the following:
-
 - A **release phase** that describes the next expected phase of the roadmap item. See below for a guide to release phases. 
-
-- A **feature area** that indicates the area of the product to which the item belongs. For a list of current product areas, see below.
-
+- A **feature area** that indicates the area of the product to which the item belongs. For a list of current product areas,see below.
 - A **feature** that indicates the feature or product to which the item belongs. For a list of current features, see below. 
-
 - One or more **product SKU** labels that indicate which product SKUs we expect the feature to be available in. For a list of current product SKUs, see below.
-
 - One or more **deployment models** (cloud, server, and/or ae). Where not stated, features will generally come out Cloud first, and follow on Server and GHAE at or soon after GA.
-
 - Once a feature is delivered, the **shipped** label will be applied to the roadmap issue and the issue will be closed with a comment linking to the relevant [Changelog](https://github.blog/changelog/) post.
-
 ## Release phases
-
 Release phases indicate the stages that the product or feature goes through, from early testing to general availability.
-
 - **alpha:** *Primarily for testing and feedback*\
 Limited availability, requires pre-release agreement. Features still under heavy development, and subject to change. Not for production use, and no documentation, SLAs or support provided.
-
 - **beta:** *Publicly available in full or limited capacity*\
 Features mostly complete and documented. Timeline and requirements for GA usually published. No SLAs or support provided.
-
 - **ga:** *Generally available to all customers*\
 Ready for production use with associated SLA and technical support obligations. Approximately 1-2 quarters from Beta.
-
 Some of our features may still be in the exploratory stages, and have no timeframe available. These are included in the roadmap only for early feedback. These are marked as follows: 
-
-- **in design:**\
+- **in design:**
 Feature in discovery phase. We have decided to build this feature, but are still figuring out _how_.
-
 - **exploring:**\
 Feature under consideration. We are considering building this feature, and gathering feedback on it.
-
-## Release phases - For GHES
-
+#Release phases - For GHES
 Some features may be marked with a GHES 3.X label, which indicates that the feature will also become available for Github Enterprise Server customers. Below are the release version numbers and expected release quarters (_Note: these dates are subject to change_). 
-
 **GHES release version dates**:
 | **Version Number** | **Release Quarter** | **Release Notes** |
 |-|-|-|
@@ -56,17 +345,11 @@ Some features may be marked with a GHES 3.X label, which indicates that the feat
 | 3.6 | Q3 2022 | [Release Notes](https://docs.github.com/en/enterprise-server@3.6/admin/release-notes) |
 | 3.7 | Q4 2022 | - |
 | 3.8 | Q1 2023 | - |
-
 ## Roadmap stages
-
 The roadmap is arranged on a project board to give a sense for how far out each item is on the horizon. Every product or feature is added to a particular project board column according to the quarter in which it is expected to ship next. Be sure to read the [disclaimer](#disclaimer) below since the roadmap is subject to change, especially further out on the timeline.  You'll also find an **Exploratory** column, which is used in conjunction with the **in design** and **exploring** release phase labels for when no timeframe is yet available.
-
-GitHub Enterprise Server has major releases on a quarterly basis, and minor releases on a monthly basis. Once we know what version we are delivering a feature, we will update the issue to indicate that information.
-
-## Feature Areas
-
-The following is a list of our current product areas:
-
+GitHub Enterprise Server has major releases on a quarterly bass, and minor releases on a monthly basis. Once we know what version we are delivering a feature, we will update the issue to indicate that information.
+#Feature Areas
+The following is a list of our current product areas
 - **code:** Code experiences (Repositories, Pull Requests, Gists)
 - **planning:** Planning and tracking tools (Issues, Projects)
 - **code-to-cloud:** Code-to-cloud DevOps (Actions, Packages)
@@ -80,22 +363,15 @@ The following is a list of our current product areas:
 - **insights:** Continuous learning and insights features
 - **client-apps:** Client applications (Desktop, Mobile)
 - **other:** Other features
-
-## Feature
-
+#Feature
 The following is a list of our current features and products, with distinct labels for filtering:
-
 - **actions:** GitHub Actions
 - **docs:** GitHub Docs
 - **packages:** GitHub Packages
 - **pages:** GitHub Pages
-
 _More labels will be added in the future as needed._
-
 ## Product SKUs 
-
 The following is a list of our current product SKUs. 
-
 - **all:** Available to all users, including a free tier. Different SKUs may have different levels of functionality.
 - **github team:** GitHub Team
 - **github enterprise:** GitHub Enterprise (Cloud and Server)
@@ -104,7 +380,6 @@ The following is a list of our current product SKUs.
 - **github advanced security:** GitHub Advanced Security (add-on to GHE)
 - **github insights:** GitHub Insights (add-on to GHE)
 - **github learning lab:** GitHub Learning Lab (add-on to GHE)
-
 ## Disclaimer 
-
 Any statement in this repository that is not purely historical is considered a forward-looking statement. Forward-looking statements included in this repository are based on information available to GitHub as of the date they are made, and GitHub assumes no obligation to update any forward-looking statements. The forward-looking product roadmap does not represent a commitment, guarantee, obligation or promise to deliver any product or feature, or to deliver any product and feature by any particular date, and is intended to outline the general development plans. Customers should not rely on this roadmap to make any purchasing decision.
+:Build::
